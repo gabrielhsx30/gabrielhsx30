@@ -1,3 +1,3 @@
-Olá, eu me chamo Gabriel, e essa é uma conta de criação programas e site
+Olá, eu me chamo Gabriel De Holanda, e aqui apresentarei meus projetos.
 
 
